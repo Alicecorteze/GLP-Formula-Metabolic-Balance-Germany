@@ -155,7 +155,6 @@
 <p align="left"><strong><a href="https://www.facebook.com/GLPFormulaMetabolicBalanceGermany/">#GLPFormulaMetabolicBalanceGermanyWebsite</a></strong></p>
 <p align="left"><strong><a href="https://www.facebook.com/GLPFormulaMetabolicBalanceGermany/">#GLPFormulaMetabolicBalanceGermanyOrder</a></strong></p>
 <p align="left"><strong>Official Facebook@:- <a href="https://www.facebook.com/GLPFormulaMetabolicBalanceGermany/">https://www.facebook.com/GLPFormulaMetabolicBalanceGermany/</a></strong></p>
-<p align="left">&nbsp;</p>
 <p align="left"><strong>Other Facebook@:-</strong></p>
 <p align="left"><strong><a href="https://www.facebook.com/GLPLabMetabolicBalanceSE">https://www.facebook.com/GLPLabMetabolicBalanceSE</a></strong></p>
 <p align="left"><strong><a href="https://www.facebook.com/GLPLabMetabolicBalanceBelgium.BE/">https://www.facebook.com/GLPLabMetabolicBalanceBelgium.BE/</a></strong></p>
